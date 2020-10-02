@@ -1,2 +1,2 @@
-# Tanmay-Chaudhari
-Computer Engineer
+# Tanmay Chaudhari
+Future Computer Engineer..
